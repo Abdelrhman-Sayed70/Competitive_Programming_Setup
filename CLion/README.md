@@ -1,1 +1,1 @@
-![image](https://github.com/Abdelrhman-Sayed70/Competitive_Programming_Setup/assets/99830416/561b935f-1471-417b-a5ec-4a4d83e2a2f3)
+![image](https://github.com/Abdelrhman-Sayed70/Competitive_Programming_Setup/assets/99830416/1f15a2c3-e150-4c4f-ad5b-d5daa0893dfd)
